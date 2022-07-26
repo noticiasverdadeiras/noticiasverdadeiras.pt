@@ -1,0 +1,1 @@
+# noticiasverdadeiras.pt
